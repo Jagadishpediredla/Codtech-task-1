@@ -26,3 +26,6 @@ SIMULATION OUTOUTS:
 
 ![images (5)](https://github.com/Jagadishpediredla/Codtech-task-1/assets/149489074/51e596a0-2363-4840-b9ce-ba79e5b6a7b5
 
+
+
+![images (5)](https://github.com/Jagadishpediredla/Codtech-task-1/assets/149489074/de19eac7-c04a-4914-a08e-e6a92d0c8b39)
