@@ -24,3 +24,5 @@ ATTACHMENTS
 
 SIMULATION OUTOUTS:
 
+![images (5)](https://github.com/Jagadishpediredla/Codtech-task-1/assets/149489074/51e596a0-2363-4840-b9ce-ba79e5b6a7b5
+
